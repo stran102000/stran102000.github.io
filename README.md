@@ -1,0 +1,1 @@
+# stran102000.github.io
